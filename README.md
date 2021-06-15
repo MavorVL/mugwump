@@ -1,0 +1,2 @@
+# mugwump
+      vasiferous bearing a vessel or vas     instrumental indicating means by which     metagnomy divination     smalt deep blue     accismus in rhetoric, pretending to refuse something     wafture act of waving or wafting     miscellanarian writer of miscellanies     javanais word alternation slang adding 'av' or 'va' to end of syllables     pejorism severe pessimism     nubiform cloudlike
